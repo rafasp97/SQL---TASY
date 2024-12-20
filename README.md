@@ -34,5 +34,5 @@ Este estágio tem sido uma excelente oportunidade de aprendizado e tem me propor
 
 ## 📞 Entre em Contato
  
-**E-mail:** rafaelsprata@outlook.com
-**Telefone:** (79) 99848-4571
+- **E-mail:** rafaelsprata@outlook.com
+- **Telefone:** (79) 99848-4571
